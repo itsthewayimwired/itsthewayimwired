@@ -10,8 +10,8 @@
 
 <div align="center">
   
-$${\color{#370717} me \ and \ the \ baddie \ }$$<br>
-$${\color{#9d0208} ⠀\ i \  pulled \  by \  \\ }$$<br>
+$${\color{#9d0208} me \ and \ the \ baddie \ }$$<br>
+$${\color{#d00000} ⠀\ i \  pulled \  by \  \\ }$$<br>
 $${\color{#dc3002} ⠀\ being \ \   \  his \  \ \ brother\ ⠀ }$$<br>
 
 
