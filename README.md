@@ -12,7 +12,7 @@
   
 $${\color{#9d0208} me \ and \ the \ baddie \ }$$<br>
 $${\color{#d00000} ⠀\ i \  pulled \  by \  \\ }$$<br>
-$${\color{#dc3002} ⠀\ being \ \   \  his \  \ \ brother\ ⠀ }$$<br>
+$${\color{#dc3002} ⠀\ being \ \   \  weird \  \ \ asf\ ⠀ }$$<br>
 
 
 
@@ -23,7 +23,7 @@ $${\color{#dc3002} ⠀\ being \ \   \  his \  \ \ brother\ ⠀ }$$<br>
 </div>
 <p align="center" > <img width="15%" height="auto" src="https://64.media.tumblr.com/55f3ad013111c906e5e29e9e1b2b1d31/e711129583183175-71/s250x400/6f6d3714eb223150e828680d634f124c1e4519e5.pnj" />
 </div>
-<p align="center" > <img height="40" width="auto" src="https://64.media.tumblr.com/2924a1e816f1a5380846f05fb35a58b9/15e9f7e13fa78961-69/s640x960/e5d92ace36652047660be3f30425296a8841dd3c.gifv" />
+
 
 </div>
 <p align="center" > <img height="100" width="auto" src="https://64.media.tumblr.com/4efaef4e1e6c2bdcda0913bc42e6f608/8010fcbb94f1aaf4-58/s1280x1920/91e8bbcec3f477816527b429bd64fa21bacd16c0.gifv" />
