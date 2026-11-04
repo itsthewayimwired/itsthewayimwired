@@ -12,7 +12,7 @@
   
 $${\color{#9d0208} me \ and \ the \ baddie \ }$$<br>
 $${\color{#d00000} ⠀\ i \  pulled \  by \  \\ }$$<br>
-$${\color{#dc3002} ⠀\ being \ \   \  weird \  \ \ asf\ ⠀ }$$<br>
+$${\color{#dc3002} ⠀\ being \ \   \  autistic \  \ \ asf\ ⠀ }$$<br>
 
 
 
@@ -21,7 +21,7 @@ $${\color{#dc3002} ⠀\ being \ \   \  weird \  \ \ asf\ ⠀ }$$<br>
 
 
 </div>
-<p align="center" > <img width="15%" height="auto" src="https://64.media.tumblr.com/55f3ad013111c906e5e29e9e1b2b1d31/e711129583183175-71/s250x400/6f6d3714eb223150e828680d634f124c1e4519e5.pnj" />
+<p align="center" > <img width="15%" height="auto" src="https://64.media.tumblr.com/597fef24b20dc2c97356deafb95de465/97ab29a01378ea77-71/s2048x3072/d336e3e28e3ab95b95dcf16a34abf15e81adfc88.gifv" />
 </div>
 
 
